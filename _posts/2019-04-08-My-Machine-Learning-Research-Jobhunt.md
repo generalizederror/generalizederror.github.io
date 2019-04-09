@@ -61,7 +61,7 @@ As a next step, I decided on which offers I thought were really worth following 
 
 I did maybe 2 rounds of back-and-forth between all the companies. I had the impression that the recruiters were getting desperate at that point: inviting me & my SO to all-expenses-paid weekend-trips to their city, sending me surprise gift baskets in the mail, handing me exploding offers, etc. I felt it was time to call it quits before they all lost their patience.
 It's worth pointing out that while the companies did offer better relocation packages and sign-on bonuses, they were inflexible in offering additional non-monetary benefits. For example, no company was able to add more vacation days to their original offers (which was mostly dictated by regional standards, and varied from 25 to 45 days off per year).
-In the end, by leveraging competing offers this way I was able roughly double the initial offer of the company I eventually signed with. My yearly total compensation ended up in the 160-240k range (not including sign-on or relocation bonuses).
+In the end, by leveraging competing offers this way I was able roughly double the initial offer of the company I eventually signed with. My yearly total compensation ended up in the 160-240k EUR range (not including sign-on or relocation bonuses).
 
 
 ## A final word about recruiters
